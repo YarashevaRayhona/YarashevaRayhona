@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Yarasheva Rayhona
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning how to live in this crazy life
-- 📫 How to reach me just email me (grustinka111) or telegram (Boboyeva_Mashhura)
+- 📫 How to reach me just email me (grustinka111) or telegram (rumicham)
 
 
 <!---
